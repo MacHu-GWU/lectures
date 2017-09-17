@@ -1,0 +1,1 @@
+- 中心翻译课程: http://www.xiniuedu.com/livecourse/detailinfo/public/html/detail.html?course_id=1017
